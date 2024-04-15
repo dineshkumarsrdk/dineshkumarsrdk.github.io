@@ -1,1 +1,0 @@
-# dineshkumarsrdk.github.io
